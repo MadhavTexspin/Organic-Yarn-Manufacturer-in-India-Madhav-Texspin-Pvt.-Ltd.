@@ -41,4 +41,5 @@ Madhav Texspin operates from Rajkot, Gujarat, with a focus on quality-oriented y
 
 ## Learn More
 
-Visit the official **Madhav Texspin** website to explore organic yarn solutions for sustainable textile manufacturing.
+Visit the official **Madhav Texspin** website to explore organic yarn solutions for sustainable textile manufacturing. 
+**https://www.madhavtexspin.com/organic-yarn-manufacturer/**
